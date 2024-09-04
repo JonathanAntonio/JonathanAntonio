@@ -3,6 +3,7 @@
 
 
 - 💻 Estudante de ADS
+- ⚔  Jovem espartano
 
 </div>
 
